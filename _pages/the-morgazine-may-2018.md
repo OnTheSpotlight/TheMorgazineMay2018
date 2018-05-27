@@ -11,7 +11,7 @@ post_date: 2018-05-26 02:55:22
 ---
 [tabby title="Stories"]
 
-[ic_add_posts category='mrgn052018' and tag='article']
+[ic_add_posts category='mrgn052018' and tag='stories']
 
 [tabby title="Galleries"]
 
