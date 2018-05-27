@@ -1,6 +1,6 @@
 ---
 ID: 478
-post_title: Senior Walk Out
+post_title: Senior Walk
 author: ng23055
 post_excerpt: ""
 layout: post
