@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2018-05-27 22:05:22
 ---
-<img title="" src="http://searchlight.shepherdmaplesyrupfestival.com/wp-content/uploads/2018/05/null.jpeg" alt="" width="624" height="832" />
+&nbsp;
 
 Just watched Kayla during the Senior Walk at the high school. As graduation day gets closer, and Kayla prepares to start college next Fall, It is becoming more and more difficult to deny that my little girl is all grown up.
 
