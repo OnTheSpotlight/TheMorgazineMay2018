@@ -9,8 +9,6 @@ permalink: >
 published: true
 post_date: 2018-05-28 13:49:43
 ---
-&nbsp;
-
 I remember Kayla’s first day of kindergarten almost like it was . . . well, not yesterday, but still it feels like it can’t be that long ago. The first day of Kindergarten was an introduction to school, but it also serves as a template for life after school as well. There was an orientation night with a tour of the building and a chance to meet Kayla’s teachers. Thought was put into what Kayla should wear on the first day and any supplies she might need.
 
 Throughout Kayla’s Senior year of high school, she has been going through a very similar process. She toured CMU’s campus, and began going through the process of learning what university classes would be like once she was accepted. And, the college classes she took via Shepherd High School and Mid Michigan Community College also served as preparation of what college classes might be like.
@@ -21,7 +19,7 @@ In college, you meet people who are like-minded when it comes to education but s
 
 Kayla didn’t go to Head Start or preschool like her younger brothers, so Kindergarten was truly her first taste of school. We dropped her off outside of her classroom, gave her hugs, and then said good-bye . . . and from that point forward, she was the author of her own story. She continues to be as she forges onward beyond high school and tackles bigger life goals such as college and career.
 
-Thirteen years ago, we walked Kayla into school and watched her become a Kindergartner. Last week, she walked between a gauntlet of students towards a new beginning, stronger, taller, and prepared for anything that comes next.
+Thirteen years ago, we walked Kayla into school and watched her become a Kindergartner. Last week, she walked between a gauntlet of students towards a new beginning, stronger, taller, and ready for a new chapter in her life.
 
 [aesop_gallery id="652"]
 
