@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2018-05-28 13:49:43
 ---
-<img title="" src="http://searchlight.shepherdmaplesyrupfestival.com/wp-content/uploads/2018/05/null-1.jpeg" alt="" width="624" height="468" />
+&nbsp;
 
 I remember Kayla’s first day of kindergarten almost like it was . . . well, not yesterday, but still it feels like it can’t be that long ago. The first day of Kindergarten was an introduction to school, but it also serves as a template for life after school as well. There was an orientation night with a tour of the building and a chance to meet Kayla’s teachers. Thought was put into what Kayla should wear on the first day and any supplies she might need.
 
